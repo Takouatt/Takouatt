@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Takouatt
+- 👋 Hi
 - 👀 I’m interested in DOING MY HOBBIES
 - 🌱 I’m currently learning HOW TP CODE
 - 💞️ I’m looking to collaborate on MAKING A WEBSITE
